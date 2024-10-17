@@ -1,1 +1,1 @@
-mans pirmais
+sos
